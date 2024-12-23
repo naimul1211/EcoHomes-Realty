@@ -1,0 +1,2 @@
+EcoHomes Realty specializes in eco-friendly properties and smart home solutions designed for a sustainable future. With a commitment to green living, EcoHomes connects buyers with energy-efficient homes and environmentally conscious communities. Our services include residential sales, rentals, and property development with a focus on reducing environmental impact. Whether you are looking for a modern smart home or a serene eco-retreat, EcoHomes Realty is your trusted partner in finding the perfect property.
+
